@@ -1,4 +1,4 @@
-# suchitis.com
+# Dr. Suchita Verma
 ## Hi this is my website, Welcome!
 There is more to come in the future. <br>
 Until then hit me up on the usual social places with **@suchitis**<br>
